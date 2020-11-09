@@ -2,4 +2,4 @@
 
 ### 连mea-anti.top都抢不到
 
-https://tieba.baidu.com/p/7076476308
+[SB Starry](https://tieba.baidu.com/p/7076476308)
